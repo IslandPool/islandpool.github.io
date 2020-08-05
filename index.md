@@ -6,7 +6,7 @@ If you'd like to support a small pool operator you have come to the right place!
 
 I am a software developer and will be looking into creating a website and other tools/utilities to support the Cardano ecosystem given the oportunity. 
 
-Islands may be small but there is a sense of community in each one, join us to support the life of a islander!
+Islands may be small but there is a sense of community in each one, join us to support the life of a islander, the small bunch in the big ocean of many!
 
 More coming soon..
 
